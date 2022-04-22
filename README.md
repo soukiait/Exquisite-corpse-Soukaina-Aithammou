@@ -5,4 +5,9 @@
 
 - But we must continue to dream else soul dies in us.
 
+- Dream is like a fuel to move forward.
+
+- Feel ourself and follow your dream.
+
+- You will reach your destination.
 
