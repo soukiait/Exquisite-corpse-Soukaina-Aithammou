@@ -7,3 +7,9 @@
 
 Without fault.
 
+- Dream is like a fuel to move forward.
+
+- Feel ourself and follow your dream.
+
+- You will reach your destination.
+
