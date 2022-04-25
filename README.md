@@ -13,3 +13,6 @@ Without fault.
 
 - You will reach your destination.
 
+-Set your goal
+
+
